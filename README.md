@@ -2,7 +2,7 @@ Hello everyone! Welcome to my profile! 👋😎
 
 I am Valdeir Prudente 
 
-🚀 I’m currently learning and working with software development.
+🚀 I'm currently a professional with a passion for data analysis and Business Intelligence.
 
 🌱 Learning is not limited because it is something that should be constantly present throughout life.
 
